@@ -1,1 +1,0 @@
-# jinx00x_tele_bot
